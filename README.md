@@ -9,3 +9,4 @@
 
 🤝 Gosto de aprender coisas novas, estar em contato com projetos que me desafiem e crescer junto com outras pessoas.
 
+ (:
